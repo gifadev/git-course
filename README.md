@@ -2,6 +2,7 @@
 ~Reizky Bombom~
 
 ## orang 2
+~ Wahyu ~
 
 ## orang 3
 
