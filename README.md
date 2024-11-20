@@ -6,7 +6,7 @@
 
 ## orang 3
 
-#### GIfade ####
+#### GIfade #### Bombombokubom
 
 ## orang 4
 tauriq masih pemula 
